@@ -1,2 +1,11 @@
 # Widevine-Tools-Emmid
+
 HMAX, NF, AMZN, DSNP, STRP, AO, PLTV, DOWNLOAD, CDM, API
+
+Telegram: @Emm1d
+
+PACK ALL TOOLS 50BRL
+
+INCLUDED CDM AMD API? YES! 
+
+NO LEAKED! PRIVATE ;-;
