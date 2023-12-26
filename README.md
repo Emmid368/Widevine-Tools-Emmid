@@ -1,0 +1,2 @@
+# Widevine-Tools-Emmid
+HMAX, NF, AMZN, DSNP, STRP, AO, PLTV, DOWNLOAD, CDM, API
